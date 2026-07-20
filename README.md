@@ -70,3 +70,5 @@ If you are interested in testing, collaborating, or investing:
 
 Email:
 realThomas2026@outlook.com
+<img width="1919" height="1000" alt="image" src="https://github.com/user-attachments/assets/319ea5f1-0069-419c-8acb-6afc0437c496" />
+
