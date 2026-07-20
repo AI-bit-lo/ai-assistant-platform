@@ -69,4 +69,4 @@ Funding will help with:
 If you are interested in testing, collaborating, or investing:
 
 Email:
-YOUR_EMAIL_HERE
+realThomas2026@outlook.com
