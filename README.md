@@ -1,3 +1,4 @@
+The link for now : https://rb.gy/ixdxkr
 # AI Assistant Platform
 
 ## 🚀 About
