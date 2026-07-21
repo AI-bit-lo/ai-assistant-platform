@@ -1,4 +1,4 @@
-The link for now : https://rb.gy/ixdxkr
+The link for now : https://mindpilot-ai-studio.lovable.app
 # AI Assistant Platform
 
 ## 🚀 About
